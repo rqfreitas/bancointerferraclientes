@@ -16,7 +16,7 @@ Liguei pra ouvidoria pelo absurdo, mas o telefone que informam não funciona.
 ### 18/05 - Não consigo o protocolo
 Não há como conseguir o protocolo do atendimento que eles não enviaram - 09:32h
 
-### 18/05 - Mensagem para a ouvidoria - 09:30h
+### 18/05 - Mensagem para a ouvidoria - 09:30h (não recebi meu dinheiro ainda)
 Como o telefone não funciona, enviei via site(atrasei esperando o protocolo que eles não enviaram)
 Segue a mensagem:
 Olá, sou cliente há alguns anos e esta semana fui surpreendido com o bloqueio sem explicita explicação de minha conta. Meu cartão de crédito dá sempre uma média entre 4000 a 6000 reais, inclusive sendo oferecido o cartão black 2 meses atrás.
